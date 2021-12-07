@@ -13,3 +13,4 @@ s.num|name|phone number
 8|siddartha|9573201398
 
 ![amegos](https://optclean.com.br/wp-content/uploads/2017/07/imagens-de-feliz-dia-do-amigo-para-whatsapp-no-formato-gif.jpg)
+![amegos](https://image.shutterstock.com/image-photo/fingers-decorated-group-friends-they-260nw-783564166.jpg)
